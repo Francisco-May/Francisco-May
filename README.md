@@ -12,4 +12,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... franciscomiguelmaysalazar@outlook.com
 - 😄 Pronouns: ... you can call me Chroharl
 - ⚡ Fun fact: ... Only know that i dont know nothing, and also nothing is true, everything is permited ;) :p
+- :) Hobbies: ... I love wacht anime, play videogames, and go out with friends, also take a nap when the time permited
+- :P Learning: ... Ill hope make a diference when make proyects
+
 -->
